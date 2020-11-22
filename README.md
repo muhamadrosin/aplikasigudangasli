@@ -1,0 +1,2 @@
+# aplikasigudangasli
+aplikasi gudang sedehana
